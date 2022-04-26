@@ -21,3 +21,7 @@ Quiet cafe in the off-season, rich food menu, sometimes laggy Wi-Fi, but they do
 
 * **Moxy Patra Marina, Patras** - https://g.page/moxypatra?share: 
 The ground floor is quiet where a big table can fit 6-7 developers. Power plugs are embedded to said table. The Wi-Fi is pretty good and you can ask at the reception for the access code. Also, you can buy yourself some breakfast, it is served til 10:30.
+
+# Coworking Spaces 🏢
+
+* **Patras Tiny Coworking Space, Patras** - https://tinycoworking.space: Cozy and quiet place whic can house up to 4 people on dedicated desks. Separate meeting room equiped with large TV and seats for up to 5 people. Easy parking, hi-speed internet (100mbps) and free coffee! ☕ Pre-booking required.
