@@ -1,3 +1,5 @@
+![pexels-jéshoots-238118](https://user-images.githubusercontent.com/1976259/165319023-deea9ece-8e1b-44b1-88ae-a8a20d6fd7ff.jpeg)
+
 # Dev-friendly cafés in Patras
 With more and more remote workers in Patras, we've been hearing more and more often the question:
 
@@ -10,3 +12,12 @@ Please feel free to suggest your favourite café by opening a PR or by filing a 
 
 
 (Shamelessly copied from https://github.com/devstaff-crete/DevStaff-Heraklion/issues/300)
+
+
+# List of cafés ☕
+
+* **Yachting House, Vrachnaiika** - https://goo.gl/maps/r8YAGfDNviFXfDjU7
+Quiet cafe in the off-season, rich food menu, sometimes laggy Wi-Fi, but they do provide a power socket extension if you ask. Very nice view and easy parking.
+
+* **Moxy Patra Marina, Patras** - https://g.page/moxypatra?share
+The ground floor is quiet where a big table can fit 6-7 developers. Power plugs are embedded to said table. The Wi-Fi is pretty good and you can ask at the reception for the access code. Also, you can buy yourself some breakfast, it is served til 10:30.
