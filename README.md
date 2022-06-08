@@ -19,6 +19,10 @@ Please feel free to suggest your favourite café by opening a PR or by filing a 
 * **Yachting House, Vrachnaiika** - https://goo.gl/maps/r8YAGfDNviFXfDjU7: 
 Quiet cafe in the off-season, rich food menu, sometimes laggy Wi-Fi, but they do provide a power socket extension if you ask. Very nice view and easy parking.
 
+<img width="723" alt="Screenshot 2022-06-08 at 10 09 28" src="https://user-images.githubusercontent.com/1976259/172555453-830dbfc9-3914-46cf-b2a8-fb363451456a.png">
+<img width="590" alt="Screenshot 2022-06-08 at 10 11 26" src="https://user-images.githubusercontent.com/1976259/172555481-d20b383f-7964-41c9-9665-031c56601daa.png">
+
+
 * **Moxy Patra Marina, Patras** - https://g.page/moxypatra?share: 
 The ground floor is quiet where a big table can fit 6-7 developers. Power plugs are embedded to said table. The Wi-Fi is pretty good and you can ask at the reception for the access code. Also, you can buy yourself some breakfast, it is served til 10:30.
 
