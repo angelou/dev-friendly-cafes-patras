@@ -27,6 +27,11 @@ Quiet cafe in the off-season, rich food menu, sometimes laggy Wi-Fi, but they do
 The ground floor is quiet where a big table can fit 6-7 developers. Power plugs are embedded to said table. The Wi-Fi is pretty good and you can ask at the reception for the access code. Also, you can buy yourself some breakfast, it is served til 10:30.
 
   ![278982447_233298238999881_6869953600842109284_n](https://user-images.githubusercontent.com/1976259/165539029-e7701d53-b7cf-4b82-a251-1bad697c71e2.png)
+  
+
+* **skatzoheros, Patras** - https://goo.gl/maps/Gg2r3WgPaGa98uks5:
+Two big tables that can fit up to 6 people, plus three smaller booths for developer parties up to 2 people, with everything having its dedicated power socket. Steady Wi-Fi, easy parking in the area and a rich all-day food menu.
+
 
 # Coworking Spaces 🏢
 
