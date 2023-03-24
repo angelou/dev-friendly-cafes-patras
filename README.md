@@ -33,6 +33,10 @@ The ground floor is quiet where a big table can fit 6-7 developers. Power plugs 
 Two big tables that can fit up to 6 people, plus three smaller booths for developer parties up to 2 people, with everything having its dedicated power socket. Steady Wi-Fi, easy parking in the area and a rich all-day food menu.
 
 
+* **Project 3.14, Rio** - https://goo.gl/maps/4KAQpK3d1VhUfhtK6:
+This place has good coffee, a unique ΚΥΚΑΩ beer which can be found only here and a very good Internet speed. It is not for a full day of work but you can spend a couple of hours there for sure. During the morning and noon it is less busy. They do not serve lunch or brunch but you have many options in walking distance.
+
+
 # Coworking Spaces 🏢
 
 * **Patras Tiny Coworking Space, Patras** - https://tinycoworking.space: Cozy and quiet place which can house up to 4 people on dedicated desks. Separate meeting room equiped with large TV and seats for up to 5 people. Easy parking, hi-speed internet (check our stats below) and free coffee! ☕ Pre-booking required.
