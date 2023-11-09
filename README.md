@@ -37,6 +37,10 @@ Two big tables that can fit up to 6 people, plus three smaller booths for develo
 This place has good coffee, a unique ΚΥΚΑΩ beer which can be found only here and a very good Internet speed. It is not for a full day of work but you can spend a couple of hours there for sure. During the morning and noon it is less busy. They do not serve lunch or brunch but you have many options in walking distance.
 
 
+* **Tag, Patras** - https://maps.app.goo.gl/MB9joqEiptGJvARo6:
+A cozy cafe located in downtown Patras, with nice coffee and many spacious tables for your coworkers and equipment. It can be a bit noisy during rush hours, but it also provides a dedicated study room with no music or distractions.
+
+
 # Coworking Spaces 🏢
 
 * **Patras Tiny Coworking Space, Patras** - https://tinycoworking.space: Cozy and quiet place which can house up to 4 people on dedicated desks. Separate meeting room equiped with large TV and seats for up to 5 people. Easy parking, hi-speed internet (check our stats below) and free coffee! ☕ Pre-booking required.
