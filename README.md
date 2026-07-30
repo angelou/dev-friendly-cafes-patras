@@ -39,6 +39,8 @@ This place has good coffee, a unique ΚΥΚΑΩ beer which can be found only her
 
 * **Tag, Patras** - https://maps.app.goo.gl/MB9joqEiptGJvARo6:
 A cozy cafe located in downtown Patras, with nice coffee and many spacious tables for your coworkers and equipment. It can be a bit noisy during rush hours, but it also provides a dedicated study room with no music or distractions.
+<img width="447" height="182" alt="Screenshot 2026-07-30 070024" src="https://github.com/user-attachments/assets/886cb679-6e22-4e81-8f2a-20c690d5128e" />
+
 
 
 # Coworking Spaces 🏢
