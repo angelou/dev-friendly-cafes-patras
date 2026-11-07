@@ -33,6 +33,7 @@ The ground floor is quiet where a big table can fit 6-7 developers. Power plugs 
 
 * **skatzoheros, Patras** - [Google Maps](https://goo.gl/maps/Gg2r3WgPaGa98uks5) - [Instagram](https://www.instagram.com/skatzoheros/):
 Two big tables that can fit up to 6 people, plus three smaller booths for developer parties up to 2 people, with everything having its dedicated power socket. Steady Wi-Fi, easy parking in the area and a rich all-day food menu.
+<img width="362" height="195" alt="Screenshot 2026-11-05 at 7 49 50 AM" src="https://github.com/user-attachments/assets/2ce21f61-f80f-4815-9ddd-ac836d8f7e41" />
 
 
 * **Project 3.14, Rio** - [Google Maps](https://goo.gl/maps/4KAQpK3d1VhUfhtK6) - [Instagram](https://www.instagram.com/314_project/):
